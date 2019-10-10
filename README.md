@@ -31,3 +31,9 @@ Or locally:
 
 ## AgC Youtube Vids
 [https://www.youtube.com/channel/UC-9X4dQ_4jkq4Mij8fpsNUA](https://www.youtube.com/channel/UC-9X4dQ_4jkq4Mij8fpsNUA)
+
+
+## Music
+
+* [Jazz mingle musik](https://www.youtube.com/watch?v=dvH-nbindvk)
+* [Upbeat modern background music](https://www.youtube.com/watch?v=mPf1W5LfsEk)

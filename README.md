@@ -29,5 +29,5 @@ Or locally:
 
 
 
-# AgC Youtube Vids
-	https://www.youtube.com/channel/UC-9X4dQ_4jkq4Mij8fpsNUA
+## AgC Youtube Vids
+[https://www.youtube.com/channel/UC-9X4dQ_4jkq4Mij8fpsNUA](https://www.youtube.com/channel/UC-9X4dQ_4jkq4Mij8fpsNUA)

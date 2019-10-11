@@ -34,6 +34,6 @@ Or locally:
 
 
 ## Music
+* [Energetic and Upbeat 2016](https://www.youtube.com/watch?v=Gir3u0L3zto)
+* [2019 Hits](https://www.youtube.com/watch?v=kGKkUN50R0c)
 
-* [Jazz mingle musik](https://www.youtube.com/watch?v=dvH-nbindvk)
-* [Upbeat modern background music](https://www.youtube.com/watch?v=mPf1W5LfsEk)
